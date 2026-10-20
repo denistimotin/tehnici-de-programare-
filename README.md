@@ -1,0 +1,1 @@
+aici tehnici  de programare
